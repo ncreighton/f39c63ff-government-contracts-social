@@ -1,2 +1,25 @@
-# f39c63ff-government-contracts-social
-30 days of post templates, stories, reels scripts, and engagement prompts for Government &amp; Contracts. Never run out of content ideas.
+# Government & Contracts Social Media Content Template Pack
+
+
+
+---
+
+## Free vs Pro
+
+| Feature | Free | Pro |
+|---------|:----:|:---:|
+| Basic template | Yes | Yes |
+| Standard layout | Yes | Yes |
+| Premium components | - | Yes |
+| Custom styling | - | Yes |
+| Support included | - | Yes |
+| Regular updates | - | Yes |
+
+### Upgrade to Pro
+
+Get the full version with all premium features, priority support, and lifetime updates.
+
+**[Get Pro Version](https://buy.stripe.com/14AfZh4eP9Mw6xy0Ved0p0z)**
+
+- [Buy Now (Stripe)](https://buy.stripe.com/14AfZh4eP9Mw6xy0Ved0p0z)
+
